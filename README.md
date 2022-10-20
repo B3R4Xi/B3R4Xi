@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @B3R4Xi
-- 👀 I’m interested in cybersec and it enthusiast
+- 👀 I’m interested in it enthusiast
 - 📫 How to reach me nasifznadif@gmail.com
 
 <!---
