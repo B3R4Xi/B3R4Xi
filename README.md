@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @B3R4Xi
+- 👋 Hi, I’m Nasif Z Nadif
 - 👀 I’m interested in it enthusiast
 - 📫 How to reach me nasifznadif@gmail.com
 
